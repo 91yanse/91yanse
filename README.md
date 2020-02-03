@@ -1,5 +1,4 @@
-# 颜·色
-:sunglasses::sunglasses:颜·色 地址发布:sunglasses::sunglasses:
+:sunglasses::sunglasses:颜·色 地址发布
 ==
 :heart: :point_right: 【地址一】 ：https://www.91yanse.com
 ------
